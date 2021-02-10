@@ -13,4 +13,6 @@ App is available here (but one cannot use it without a subscription):
 
 https://podpisz.com.pl/
 
-![asd](http://cv.retip1994.usermd.net/wp-content/uploads/2021/02/podpisz_com_pl.gif)
+![asd](http://cv.retip1994.usermd.net/wp-content/uploads/2021/02/ezgif.com-gif-maker.gif)
+
+![](http://cv.retip1994.usermd.net/wp-content/uploads/2021/02/podpisz_com_pl.gif)
