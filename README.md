@@ -13,4 +13,4 @@ App is available here (but one cannot use it without a subscription):
 
 https://podpisz.com.pl/
 
-![sign contract example](http://cv.retip1994.usermd.net/wp-content/uploads/2021/02/podpisz_com_pl.gif)
+![sign](http://cv.retip1994.usermd.net/wp-content/uploads/2021/02/podpisz_com_pl.gif)
